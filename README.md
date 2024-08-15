@@ -12,4 +12,5 @@ tainara.schreiner.silva@escola.pr.gov.br
 
 dixx_schreiner 🍁
 
-https://tenor.com/pt-BR/view/animated-jinmiran-gif-22907121
+
+<img src="https://media1.tenor.com/m/opEBWw0uddoAAAAC/umm.gif" alt="a cartoon character with a headband that says g on it"/>![image](https://github.com/user-attachments/assets/4a88ca18-62e7-4750-811b-3abc41fb0817)
